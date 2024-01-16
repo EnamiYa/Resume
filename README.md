@@ -1,3 +1,3 @@
 # Resume
 
-My latest resume :)) Thank you for reading! 
+My updated resume :)) Thank you for reading! 
